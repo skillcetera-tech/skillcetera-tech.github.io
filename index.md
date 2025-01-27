@@ -1,5 +1,5 @@
-# Skillcetera :smile:
+# Skillcetera 😊
 
-`LANDING PAGE UNDER CONSTRUCTION`
+⚠️ `🚧LANDING PAGE UNDER CONSTRUCTION🚧`
 
-:arrow_right: Meanwhile, join ESC at [https://skillcetera.live/esc](https://skillcetera.live/esc).
+➡️ Meanwhile, join ESC at [https://skillcetera.live/esc](https://skillcetera.live/esc) 🎉.
